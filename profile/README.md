@@ -6,7 +6,7 @@
 
 PhonePe is already well-known for its secure payment gateways and ease of use. However, the **PhonePe Mod Apk** takes it a step further by unlocking premium features, such as unlimited money for users to enjoy without worrying about in-app restrictions. As a modified application, it provides enhanced functionalities and benefits not available in the official app version.
 
-## Download Now:👌  [Phonepe Mod Apk V23.12.08.0 Unlimited Money](https://heyapks.com/phonepe-upi-payment-recharge.html)
+## Download Now:👌 [Phonepe Mod Apk](https://heyapks.com/phonepe-upi-payment-recharge.html) 
 
 ## Features of PhonePe Mod Apk
 
